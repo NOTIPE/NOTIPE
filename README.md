@@ -1,1 +1,1 @@
-<img><a href="https://iimg.su/i/yRwYWu"><img src="https://s4.iimage.su/s/04/th_gyRwYWux0pI3q2G2qpYANc6CztU9cGTOBKz3dnk6.jpg"></a>
+<img><a href="https://iimg.su/i/yRwYWu"><img src="<a href="https://iimg.su/i/rEOsk7"><img src="https://s.iimg.su/s/11/grEOsk7xEVDZ7bjBfStU6gVhUt3j2eO3P4Y3qD4W.jpg"></a>"></a>
