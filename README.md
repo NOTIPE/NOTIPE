@@ -1,2 +1,2 @@
-слегка опикмел 
-<img> <a href="https://iimg.su/i/cqoe9N"><img src="https://s.iimg.su/s/11/gcqoe9NxRlQ4E3lLgwpqmsJXSVB4EJ9zNrNgIm2S.jpg"></a>
+ о оооо о 
+<img> <a href="https://iimg.su/i/a56o21"><img src="https://s3.iimg.su/s/16/ga56o21xYr9hRIoEYaDfbhV3PVTsSnUR30hHlz8F.jpg"></a>
